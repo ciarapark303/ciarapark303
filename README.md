@@ -32,4 +32,4 @@ This is what AI in real life actually looks like. Not a chatbot. A team.
 
 **Find me**
 - 🌐 [ciara.cool](https://ciara.cool)
-- 💼 [LinkedIn](https://linkedin.com/in/ciarapark303)
+- 💼 [LinkedIn](https://www.linkedin.com/in/ciara-park-703450413)
